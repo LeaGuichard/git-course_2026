@@ -12,4 +12,6 @@
 - 2 cuillères à café d'huile végétale
 - 2 gousses d'ail hachées
 
+![image of brocoli gratin](gratin_de_brocoli-1024x683.jpg)
+
 Ajoutons du fromage rapé!
